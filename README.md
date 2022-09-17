@@ -1,12 +1,12 @@
 ## Intro
-<p>
-- 👋 Hi, I’m @RulzTodzMD
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 🐳 Follow My Account 
-- 🗿 Srepet Ini Akin Prikk 🗿☝️
+
+- 👋 Hi, I’m IrulLz
+- 👀 Kamu Teman Ku? Haii
+- 🌱 IrulLz Si Bocah JavaScript
+- 💞️ Anisa My Mine 👑
+- 👑 Mampir Ke Instagram Juga Bree
+- 🐳 Follow My Github 
+- 🗿 Srepet Ini Akun Prikk 🗿☝️
 
 
 ## Donate
@@ -18,6 +18,7 @@
 
 # Official Group
 - [join grup botz](https://chat.whatsapp.com/GbR42kIJTblBtFXlWHFiX9)
+- [join grup jebe](https://chat.whatsapp.com/Laeeh4JaYcrL5sd5mjECnc)
 
 # Official Youtube
 - [ Youtube](https://youtube.com/channel/UCgaoyyeZlObOfaSSuCJaPRg)
