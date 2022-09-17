@@ -7,7 +7,7 @@
 - 👑 Mampir Ke Instagram Juga Bree
 - 🐳 Follow My Github 
 - 🗿 Srepet Ini Akun Prikk 🗿☝️
-
+* My WhatsApp [`Click Here`](https://wa.me/6281330251825?text=Assalamualaikum)
 
 ## Donate
 - [Saweria](https://saweria.co/rulzstorex)
