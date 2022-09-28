@@ -3,7 +3,7 @@
 - ```👋 Hi, I’m IrulLz ```
 - ```👀 Kamu Teman Ku? Haii```
 - ```🌱 IrulLz Si Bocah JavaScript```
-- ```💞️ Anisa My Mine 👑```
+- ```😔 IrulLz Suka Nt :)```
 - ```👑 Mampir Ke Instagram Juga Bree```
 - ```🐳 Follow My Github``` 
 - ```🗿 Srepet Ini Akun Prikk 🗿☝️```
