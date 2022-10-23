@@ -24,7 +24,7 @@
 - [ ```Youtube```](https://youtube.com/channel/UCgaoyyeZlObOfaSSuCJaPRg)
 
 # Official Instagram
-- [ ```Follow My Instagram```](https://www.instagram.com/irulz.elek_/)
+- [ ```Follow My Instagram```](https://www.instagram.com/irulzgoodboy_/)
 <!---
 RulzTodzMD/RulzTodzMD is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
